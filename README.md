@@ -1,0 +1,1 @@
+# UAS_Praktikum_KomputerGrafis_G211190136
